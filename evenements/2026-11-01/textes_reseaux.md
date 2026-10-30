@@ -37,18 +37,8 @@ Hommage à celles et ceux qui ont rendu l'Algérie libre.
 ## Stories Instagram et Facebook (visuel 1080x1920)
 Sans texte.
 
-## YouTube Short (vidéo 1080x1920, 10 secondes)
-Titre : 1er Novembre 1954 : 72e anniversaire de la Révolution algérienne
-Description :
-1er Novembre 1954 à 2026 : 72e anniversaire du déclenchement de la Révolution algérienne. Hommage à celles et ceux qui ont rendu l'Algérie libre.
-عيد ثورة مجيد
-
-Photo : Poudou99, Wikimedia Commons, CC BY 3.0 (retouchée).
-#1erNovembre #Algérie #UNIDEES
-
 ## Horaires de publication (dimanche 1er novembre 2026, heure d'Alger)
 - 09:00 : stories Instagram et Facebook
 - 10:00 : Facebook, X
 - 11:00 : LinkedIn
-- 12:00 : YouTube Short
 - 18:00 : Instagram
